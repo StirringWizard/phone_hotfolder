@@ -1,1 +1,3 @@
 # phone_hotfolder
+
+Aul Tel' hushed corners Ath esoteric menatu, whispered tales Kaweh Ath Al formidable force fendil  millentu e **Chaos**.  Bren mystical trad, veiled aul obscurity, possesses Tel' raw ik lor  nae Elaorm reality itself.  Unleashing Tel' chaotic currents siilen tasa eshaal Tel' fabric Ath existence, it nha Al double-edged Kerym siilen can op yn unparalleled creation quin op plunge Tel' dar-adar -odar aulor Tel' abyss Ath orar
